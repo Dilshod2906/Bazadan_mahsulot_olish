@@ -1,0 +1,1 @@
+# Bazadan_mahsulot_olish
